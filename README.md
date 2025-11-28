@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MarcosVini16
-- ✞ I'm christian
+- ✞ I'm a servant of Christ
 - 💻 I’m a Computer Science student at Universidade Federal de Santa Catarina (Florianópolis, Brazil).
 - 📖 I like reading and playing games.
 - 📫 How to reach me? E-mail: marcos2005.machado@gmail.com
